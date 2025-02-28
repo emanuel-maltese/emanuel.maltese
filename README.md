@@ -1,1 +1,0 @@
-Approfondimento bluetooth:
